@@ -1,7 +1,7 @@
 # Dr Lesiba J. Rashokeng
 
 Health regulation leader, scholar, author and minister of the Word, based in Pretoria, South Africa.
-<!-- [CONFIRM] Adjust the line above to your preferred public title. -->
+
 
 I work where health regulation, leadership and faith meet: strengthening quality in South Africa's health system, writing on leadership and productivity, and equipping men and boys through ministry.
 
