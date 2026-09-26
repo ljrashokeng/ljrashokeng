@@ -23,8 +23,8 @@ I work where health regulation, leadership and faith meet: strengthening quality
 
 ## Connect
 
-- LinkedIn: [https://www.linkedin.com/in/lesiba-j-rashokeng-01a02b50/]
-- *Pulse on Leadership*: [https://www.linkedin.com/newsletters/pulse-for-leadership-7346889502252044288]
+- LinkedIn: [Dr Lesiba J. Rashokeng](https://www.linkedin.com/in/lesiba-j-rashokeng-01a02b50/)
+- *Pulse on Leadership*: [Read the newsletter](https://www.linkedin.com/newsletters/pulse-for-leadership-7346889502252044288)
 - Publishing and ministry enquiries: hello@kingdomscribe.co.za
 
 ---
