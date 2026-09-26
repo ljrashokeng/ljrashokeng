@@ -18,13 +18,13 @@ I work where health regulation, leadership and faith meet: strengthening quality
 
 | Title | Year | Link |
 |---|---|---|
-| *How Not to Ruin Your Marriage* | 2026 | [CONFIRM link] |
-| [CONFIRM second title] | | |
+| *How Not to Ruin Your Marriage* | 2026 | https://kingdomscribe.co.za/marriage |
+| *The Burden of Blessing* | 2026 |https://kingdomscribe.co.za/books.html?cat=Christian%20Stewardship |
 
 ## Connect
 
-- LinkedIn: [CONFIRM profile URL]
-- *Pulse on Leadership*: [CONFIRM newsletter URL]
+- LinkedIn: [https://www.linkedin.com/in/lesiba-j-rashokeng-01a02b50/]
+- *Pulse on Leadership*: [https://www.linkedin.com/newsletters/pulse-for-leadership-7346889502252044288]
 - Publishing and ministry enquiries: hello@kingdomscribe.co.za
 
 ---
